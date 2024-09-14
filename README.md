@@ -15,7 +15,7 @@ Email Marketing: we can integrate email marketing campaigns to convert warm lead
 4. Data-Driven Strategies
 Analytics and Metrics: we track campaign performance meticulously, using data insights (e.g., impressions, click-through rates, conversions) to refine strategies and ensure your campaigns deliver strong ROI.
 Audience Feedback: we continuously engage with my audience to gather feedback on the promoted products, allowing for real-time adjustments to ensure high satisfaction and conversion rates.
-5. Why Choose Me?
+5. Why Choose Us?
 Proven Results: With a background in successfully promoting a variety of brands, we have a track record of increasing brand awareness, engagement, and driving sales through tailored digital strategies.
 Authenticity and Trust: My audience trusts my recommendations because we only promote products that align with my values and brand, resulting in higher engagement and loyalty.
 Holistic Approach: we offer a comprehensive marketing solution that combines creative content with data analysis, ensuring every campaign is optimized for performance across multiple platforms.
